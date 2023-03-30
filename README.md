@@ -1,1 +1,0 @@
-# qaMar23-SkrypnikovOleksii
